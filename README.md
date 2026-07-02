@@ -1,4 +1,8 @@
-<img width="540" height="301" alt="indir" src="https://github.com/user-attachments/assets/b6e03483-be06-4598-ba9b-588aede696bd" />
+<img width="350" height="281" alt="Reze Denji GIF – Reze Denji Chainsaw man – discover and share GIFs" src="https://github.com/user-attachments/assets/2526d35c-6519-4b56-89b0-84bc3a7e39f2" />
+
+
+
+
 
 
 <!--
