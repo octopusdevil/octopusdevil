@@ -1,4 +1,5 @@
-## Hi there 👋
+<img width="540" height="301" alt="indir" src="https://github.com/user-attachments/assets/b6e03483-be06-4598-ba9b-588aede696bd" />
+
 
 <!--
 **octopusdevil/octopusdevil** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
