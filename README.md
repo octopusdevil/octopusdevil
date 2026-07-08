@@ -1,4 +1,5 @@
-<img width="350" height="281" alt="Reze Denji GIF – Reze Denji Chainsaw man – discover and share GIFs" src="https://github.com/user-attachments/assets/2526d35c-6519-4b56-89b0-84bc3a7e39f2" />
+<img width="220" height="188" alt="17834954530284546289981731340462" src="https://github.com/user-attachments/assets/30939cdf-5a17-47a0-a8d6-48acbd5688c9" />
+
 
 [atabook](https://yoshida.atabook.org/)  ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎    [pronouns](https://pronouns.cc/@yoshidav)  ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎    
 
