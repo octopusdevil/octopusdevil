@@ -1,7 +1,7 @@
 bullying [@bri](https://github.com/bloodbathed) 
 
 
-<img width="220" height="188" alt="17834954530284546289981731340462" src="https://github.com/user-attachments/assets/30939cdf-5a17-47a0-a8d6-48acbd5688c9" />
+<img https://64.media.tumblr.com/d6a5b95b3411b5be6fc2098d9809cbd8/fe2a30350e323e4c-b2/s540x810/9d4ea21a27991c346c6cb2dd0cdb349c35940c6a.gifv/>
 
 
 [atabook](https://yoshida.atabook.org/)  ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎    [pronouns](https://pronouns.cc/@yoshidav)  ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎    
